@@ -2,7 +2,7 @@
 ------------------------------
 - 💻 I’m interested in Programming/Coding.
 ------------------------------
-- 🔴 I'm a youtuber!
+- 🔴 I'm a Youtuber!
 ------------------------------
 - 📫 My Discord: MustafaXD#9999
 
